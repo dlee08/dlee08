@@ -2,7 +2,7 @@
 - 👀 I’m interested in competitive programming and biology.
 - 🌱 I’m currently learning competitive math.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: davidlee03112008@gmail.com/dlee60@stuy.edu/davidl542@nycstudents.net
+- 📫 How to reach me: dlee08.nyc@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
